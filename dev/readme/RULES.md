@@ -77,3 +77,5 @@ Proyek ini dibuat berdasarkan pada dukungan internet netral di Indonesia. Lebih 
 [19] Arnold Djiwatampu. (12/30/2015). [Netralitas Jaringan (Net Neutrality)](https://mastel.id/forums/topic/netralitas-jaringan-net-neutrality/78/).
 
 [20] Rahadian P. Paramita . (09/16/2014). [Net Neutrality: Kualitas akses tanpa diskriminasi](https://beritagar.id/artikel/sains-tekno/net-neutrality-kualitas-akses-tanpa-diskriminasi-14692).
+
+[21] Slot Gacor (07/25/2025). [HONEYSLOT777: Link Slot Gacor Mahjong Ways Server PG Soft Bet 200](https://ras.doe.gov.my/).
